@@ -4,5 +4,5 @@
 - 💞️ Procuro colaborar em projetos diversos, contando que tenha espaço para aprendizado eu estou a disposição, pode chamar.
 
 - 📫 Como entrar em contato comigo: 
-Email: igorserafimn@gmail.com
+[twitter](https://twitter.com/I_SerafiMn)
 GitHub: https://github.com/ISerafimn/
